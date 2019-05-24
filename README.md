@@ -29,7 +29,7 @@ V2ray-233Blog（https://t.me/blog233 ）
 
 
 【5】-交友
-gay-东方撸神（https://t.me/dvco7 ） 联络他拉
+gay-东方撸神 已被封禁
 
 【6】-乱七八糟不知道是什么
 deep web暗网交流-（https://t.me/deepwebchina ） 
