@@ -22,6 +22,8 @@ RixCloud专业机场-(https://rixcloud.com/)
 
 Github页面：https://github.com/Kabukichoichi/kabukicho
 
+价格单：https://market.m.taobao.com/apps/market/content/index.html?wh_weex=true&contentId=217381043541
+
 淘宝店：https://shop124652346.taobao.com
 
 【3】-软件
